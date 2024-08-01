@@ -2,7 +2,7 @@
 - 👀 I'm interested in strategic innovation, AI-powered platforms, digital transformation, and data-driven marketing strategies.
 - 🌱 I'm currently learning advanced AI and ML techniques for personal and business applications, and cutting-edge web development frameworks and tools.
 - 💞️ I'm looking to collaborate on projects involving AI integration in business processes, digital marketing strategies, and operational optimization.
-- 📫 How to reach me Email: kovermier@gmail.com
+- 📫 How to reach me Email: kurt@kurtovermier.com
 LinkedIn: kovermier
 Website: smartbrandstrategies.com
 - 😄 Pronouns: He/Him
